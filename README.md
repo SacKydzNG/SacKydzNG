@@ -1,4 +1,4 @@
-Hello there people, I'm @SacKydzNG, and I can't WAIT to fuck your mom when I reach age of consent. I have a kickass account (https://sackydz12.newgrounds.com pls follow) on a kickass website (https://www.newgrounds.com pls support)
+Hello there people, I'm @SacKydzNG, and I can't WAIT to fuck your mom when I reach age of consent. I have a kickass account (https://sackydzng.newgrounds.com pls follow) on a kickass website (https://www.newgrounds.com pls support)
 
 Oh and I hate twitter btw 
 
