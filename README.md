@@ -1,4 +1,6 @@
-Kevin Daniel here, might need a new account eventually idk
+I will actually flippin crash out
+
+ts lowk brainmeltin
 
 <!---
 SacKydzNG/SacKydzNG is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
